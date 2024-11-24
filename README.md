@@ -2,7 +2,7 @@
 
 Currently learning **Python**.
 
-Before that, I spent eighteen wonderful years in the music industry.
+Before that, I spent eighteen years in the music industry.
 
 During this time, I earned multiple **Gold and Platinum Records**.
 
