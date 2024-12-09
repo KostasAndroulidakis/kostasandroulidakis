@@ -2,7 +2,7 @@
 
 Currently learning **Python**.
 
-I realized that **Electrical Engineering and Computer Science** fascinate me more than music.
+I realized that **Electrical Engineering and Computer Science** fascinates me more than music.
 
 Before that, I spent twelve years in the music industry, earning some **Gold** and **Platinum Records**.
 
